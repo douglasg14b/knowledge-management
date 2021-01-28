@@ -10,3 +10,4 @@ Information:
 
 
 * Finance Info 1: [link](https://old.reddit.com/r/wallstreetbets/comments/l6jr5f/bloomberg_data_request_thread/)
+* Suites Strike  back (otential crash?) [link](https://old.reddit.com/r/wallstreetbets/comments/l6py0p/gme_wars_suits_strike_back_warning_for_all_you/)
